@@ -24,4 +24,4 @@ We only ask for necessary permissions. Internet access is required for browsing 
 We may update our Privacy Policy from time to time. We recommend you review this page periodically for any changes.
 
 8. Contact Us
-If you have any questions, please contact us at: [আপনার ইমেইল এখানে লিখুন]
+If you have any questions, please contact us at: [princenasimx@gmail.com]
